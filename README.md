@@ -1,0 +1,1 @@
+Tero tot uterque adsuesco sponte circumvenio.
